@@ -1,6 +1,6 @@
 # Casa_Cappe
 
 Integrantes:
-Mariamny
+Mariamny Ramírez
 Nathalia Cardoza
 Athina Cappelletti

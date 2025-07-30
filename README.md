@@ -3,4 +3,4 @@
 Integrantes:
 Mariamny Ramírez | 
 Nathalia Cardoza | 
-Athina Cappelletti |
+Athina Cappelletti
